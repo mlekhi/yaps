@@ -1,4 +1,4 @@
-inspiration: https://x.com/maya_l39/status/1827409123677540820
+inspiration: https://x.com/mayalekhi/status/1827409123677540820
 
 
 <img src="https://github.com/user-attachments/assets/f6eb6263-0f41-4415-8914-e869f5586d3a" width="200">
